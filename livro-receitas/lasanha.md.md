@@ -2,7 +2,7 @@
 
 ### Ingredientes
 
-#### Lasanha
+#### Lasanh
 
 - 500 g de massa para lasanha
 
