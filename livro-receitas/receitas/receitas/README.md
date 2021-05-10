@@ -6,6 +6,7 @@ Olá estas a vir meu livro de receitas, convenhamos que está atualizado​ :wav
 
 - Lasanha De Frango! 
 - Pavê 
+- Bolo de cenoura 
 
 
 
